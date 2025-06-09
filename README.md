@@ -8,7 +8,7 @@ With a few clicks, you can save up to 74% and lock in extra months for free. Let
 
 ## Why Choose NordVPN?
 
-<img width="1334" alt="Screenshot 2025-06-06 at 9 46 00 PM" src="https://github.com/user-attachments/assets/7eff3e18-46a1-412b-8bba-206ef4d05b0f" />
+<a href="https://getplatform.link/nord-vpn"><img width="1334" alt="Screenshot 2025-06-06 at 9 46 00 PM" src="https://github.com/user-attachments/assets/7eff3e18-46a1-412b-8bba-206ef4d05b0f" /></a>
 
 Look, there are a ton of VPNs out there. But NordVPN? It’s the one people actually stick with — and for good reason.
 
